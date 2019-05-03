@@ -1,4 +1,4 @@
 # legendramen
 ----
 * descript swag 
-* hulk byung sin
+* he die (
