@@ -1,3 +1,3 @@
-# zinramen
+# shinramen
 ----
 * descript swag 
