@@ -1,3 +1,3 @@
-# manduramen
+# legendramen
 ----
 * descript swag 
